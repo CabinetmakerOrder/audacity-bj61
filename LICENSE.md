@@ -1,4 +1,4 @@
-# 
+# Furtif Vegas Pro pour PC scripts est le meilleur Vegas Pro pour PC scripts avec montage multistate et traitement par lots. Sécurisé, fiable et optimisé pour des performances
 
 
 
